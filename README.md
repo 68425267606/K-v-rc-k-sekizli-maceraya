@@ -1,0 +1,1 @@
+# K-v-rc-k-sekizli-maceraya
